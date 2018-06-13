@@ -1,1 +1,0 @@
-# Trabalho2---Calculo
